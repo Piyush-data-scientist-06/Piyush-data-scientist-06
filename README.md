@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **piyushgupta.tech06@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LtSqmzetPMGRgQQg8pZGZ-YNQAi1AoGD/view?usp=drive_link](https://drive.google.com/file/d/1LtSqmzetPMGRgQQg8pZGZ-YNQAi1AoGD/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1J3HG_Tb9e17TbQ2o9LuGUkYZ9-CH2i5x/view?usp=sharing]
 
 - ⚡ Fun fact **I'm a professional Table tennis player and can play with both left or right hand! Bagged first place in Table tennis National Tournament, IBS, Hyderabad 2016**
 
